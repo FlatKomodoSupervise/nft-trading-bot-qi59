@@ -1,4 +1,4 @@
-# 
+# new NFT Wash Trading Bot for nft trading bot | profit-calculator & wash-trading-execution is the best nft trading bot, featuring profit-calculator and wash-trading-execution.
 
 
 
